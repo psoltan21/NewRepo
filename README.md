@@ -1,1 +1,2 @@
 # NewRepo
+My family immigrated here from Poland. My mom was about 18 years old when she came. She got her ASN in nursing and then eventually got her masters in nursing. She was raising me and my older brother while going to school and working. I am now following her by going to school for nursing. I am on the path to receive my bachelors. I currently work as a nurse aid in a hospital. I work on the pediatric unit and hope to continue my career in pediatrics. I am thinking about going into pediatric oncology specifically. 
